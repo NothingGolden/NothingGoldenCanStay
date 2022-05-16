@@ -8,7 +8,10 @@ Resuming Soon - check back for Week 1 scheduling!
 ### Dues for last season
 $1.7 per game played
 
-## Friendly
+### Friendlies we're playing
+TBD
+
+## Friendly We're Writing
 Scheduled for Week 11 of the Summer '22 season and DUE JULY 24
 
 [Questions We're writing](https://docs.google.com/spreadsheets/d/1rjFAIZp3KI-GkO0D_L4ANVb0S6nezp9QoC5S6Etj3uI/edit?usp=sharing)
