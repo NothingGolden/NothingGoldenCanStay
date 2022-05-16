@@ -1,5 +1,7 @@
 # Nothing Golden Can Stay
 
+![Image of Golden, CO, where nothing can stay](travel-golden-colorado.png)
+
 ## League
 Resuming Soon - check back for Week 1 scheduling!
 
