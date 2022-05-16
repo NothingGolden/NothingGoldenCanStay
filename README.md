@@ -3,7 +3,9 @@
 ![Image of Golden, CO, where nothing can stay](travel-golden-colorado.png)
 
 ## League
-Resuming Soon - check back for Week 1 scheduling!
+[Week 1 Avail Poll](https://www.when2meet.com/?15676173-ryrki)
+Note: Matches are allowed next Monday if needed
+Opponent: TBD
 
 ### Dues for last season
 $1.7 per game played
