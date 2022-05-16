@@ -4,7 +4,9 @@
 
 ## League
 [Week 1 Avail Poll](https://www.when2meet.com/?15676173-ryrki)
+
 Note: Matches are allowed next Monday if needed
+
 Opponent: TBD
 
 ### Dues for last season
