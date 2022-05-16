@@ -13,7 +13,7 @@ Opponent: TBD
 $1.7 per game played
 
 ## Friendlies we're playing
-TBD
+May 16 at 6p Eastern
 
 ## Friendly We're Writing
 Scheduled for Week 11 of the Summer '22 season and DUE JULY 24
