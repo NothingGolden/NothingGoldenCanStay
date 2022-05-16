@@ -8,7 +8,7 @@ Resuming Soon - check back for Week 1 scheduling!
 ### Dues for last season
 $1.7 per game played
 
-### Friendlies we're playing
+## Friendlies we're playing
 TBD
 
 ## Friendly We're Writing
