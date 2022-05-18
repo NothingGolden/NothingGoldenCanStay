@@ -35,7 +35,10 @@ Scheduled for Week 11 of the Summer '22 season and DUE JULY 24
 
 
 
-## Other Annoucements
+## Other Annoucements/Links
+
+- [**PRIVATE PROTOBOWL ROOM](https://protobowl.com/nothing-golden-can-stay)
+
 - [**MIMIR'S WELL**](https://www.mimirswell.co.uk/), an international solo online quiz (same format as Pop Solos) begins June 4th. 
 
 - [ **WORLD QUIZZING CHAMPIONSHIPS**](http://www.worldquizzing.com/) are online/in person on June 4th! Venues confirmed in Boulder CO, Washington DC, Chicago
