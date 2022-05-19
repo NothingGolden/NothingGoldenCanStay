@@ -7,7 +7,7 @@
 
 **THURS, MAY 19, 9:30pm Eastern**
 
-**Lineup**: Troy, Pam, David, (open)
+**Lineup**: Troy, Pam, *, (open)
 
 On deck: Grant, Laura, Josh, Andy
 
