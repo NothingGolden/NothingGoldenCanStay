@@ -3,15 +3,15 @@
 ![Image of Golden, CO, where nothing can stay](travel-golden-colorado.png)
 
 ## League
-[Week 1 Avail Poll](https://www.when2meet.com/?15676173-ryrki)
+[Week 2 Avail Poll](https://www.when2meet.com/?15751109-5YohM)
 
-**THURS, MAY 19, 9:30pm Eastern**
+**TBD**
 
-**Lineup**: Troy, Pam, *, (open)
+**Lineup**: TBD
 
-On deck: Grant, Laura, Josh, Andy
+On deck: TBD
 
-Opponent: Queen Latifah's Gambit
+Opponent: Hot Cops
 
 
 
