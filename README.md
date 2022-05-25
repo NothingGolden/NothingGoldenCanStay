@@ -5,11 +5,11 @@
 ## League
 [Week 2 Avail Poll](https://www.when2meet.com/?15751109-5YohM)
 
-**TBD**
+**Thurs 10p Eastern**
 
-**Lineup**: TBD
+**Lineup**: Andy? John? Pam? Troy?
 
-On deck: TBD
+On deck: Grant
 
 Opponent: Hot Cops
 
