@@ -5,13 +5,13 @@
 ## League
 [Week 2 Avail Poll](https://www.when2meet.com/?15751109-5YohM)
 
-**Thurs 10p Eastern**
+**Fri 8p Eastern**
 
-**Lineup**: Andy? John? Pam? Troy?
+**Lineup**: Laura John David Grant
 
-On deck: Grant
+On deck: Andy?
 
-Opponent: Hot Cops
+Opponent: 2 Fast 2 Curious
 
 
 
