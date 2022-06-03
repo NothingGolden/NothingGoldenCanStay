@@ -3,7 +3,7 @@
 ![Image of Golden, CO, where nothing can stay](travel-golden-colorado.png)
 
 ## League
-[Week 2 Avail Poll](https://www.when2meet.com/?15751109-5YohM)
+[Week # Avail Poll](.)
 
 **Fri 8p Eastern**
 
